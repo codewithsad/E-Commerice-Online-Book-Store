@@ -1,1 +1,1 @@
-E Commerice Online Book Store
+E-Commerce Online Book Store
